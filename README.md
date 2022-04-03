@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LinksPlus2 the Global links club
+- 👋 Hi, I’m Alexander@LinksPlus2 the Global links+2 club
 - 👀 I’m interested in groups, investments, strategic alliances, Peraculture free school, Hemp farming, and solar energy
 - 🌱 I’m currently 67 learning lots...
 - 💞️ I’m looking to collaborate on co-creation websites with Links-Plus2.weebly.com a free weebly website.
