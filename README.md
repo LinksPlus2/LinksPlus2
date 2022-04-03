@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alexander@LinksPlus2 the Global links+2 club
-- 👀 I’m interested in groups, investments, strategic alliances, Peraculture free school, Hemp farming, and solar energy
+- 👀 I’m interested in groups, investments, strategic alliances, Permaculture free school, Hemp farming, and solar energy
 - 🌱 I’m currently 67 learning lots...
 - 💞️ I’m looking to collaborate on co-creation websites with Links-Plus2.weebly.com a free weebly website.
 - 📫 How to reach me here or there Facebook https://www.facebook.com/9jAlexander/
